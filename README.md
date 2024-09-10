@@ -3,7 +3,9 @@
 Meu nome é Otávio
 
 -Estou estudando no [Alura](https://www.alura.com.br)
+
 -Estou desenvolvendo na linguagem JavaScript
+
 -Utilizo este espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
 ### Você pode entrar em contato comigo 📫
