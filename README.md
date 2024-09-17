@@ -14,4 +14,4 @@ otavio.piovan.rocha@escola.pr.gov.br
 
 @otaviohenrique_09
 
-![](https://media1.tenor.com/m/C5SdBxh-bxcAAAAC/mim-de-papai-sad.gif)
+![](https://media1.tenor.com/m/A-ozELwp694AAAAC/thumbs-thumbs-up-kid.gif)
